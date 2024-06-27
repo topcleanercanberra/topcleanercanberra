@@ -7,6 +7,6 @@ Top Cleaner Canberra is Canberra's leading cleaning service provider, dedicated 
 
 ### Contact Information
 
-**Email:** contact@topcleanercanberra.com.au
-**Phone:** +61 414076980
-**Address:** 11 Moore St, Canberra ACT 2601, Australia
+Email: contact@topcleanercanberra.com.au
+Phone: +61 414076980
+Address: 11 Moore St, Canberra ACT 2601, Australia
